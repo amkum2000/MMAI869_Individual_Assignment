@@ -1,0 +1,2 @@
+# MMAI869_Individual_Assignment
+MMAI869 Individual Assignment
